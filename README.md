@@ -9,7 +9,7 @@ LISTA DE TRABALHOS FEITO PARA CLIENTES:
   obs: Criação de acordo com o que o cliente deseja.
  
   2. Criação de skins(imagens de conteúdo por meio do photoshop), desde o mês de maio, para gerar tráfego na página do facebook para cliente.
-  obs: Segue algumas skins para visualização dos mesmos.
+  obs: Segue algumas skins com a numeração "2" para visualização dos mesmos.
   
   
   3. Criação da logo para o produto skp.
