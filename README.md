@@ -11,3 +11,6 @@ LISTA DE TRABALHOS FEITO PARA CLIENTES:
   2. Criação de skins(imagens de conteúdo por meio do photoshop) para gerar tráfego na página do facebook para cliente:
   
   
+  3. Criação da logo para o produto skp:
+  
+  
