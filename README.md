@@ -6,4 +6,6 @@ LISTA DE TRABALHOS FEITO PARA CLIENTES:
   http://basico.walmirlima.com.br/material-educativo-viver-de-internet
   obs: Criação de acordo com o que o cliente deseja.
  
-  2.
+  2. Criação de skins(imagens de conteúdo por meio do photoshop) para gerar tráfego na página do facebook para cliente:
+  
+  
