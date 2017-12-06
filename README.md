@@ -9,5 +9,5 @@ LISTA DE TRABALHOS FEITO PARA CLIENTES:
   obs: Criação de acordo com o que o cliente deseja.
  
   2. Criação de skins(imagens de conteúdo por meio do photoshop), desde o mês de maio, para gerar tráfego na página do facebook para cliente.
- obs: imagens disponibilizadas para visualização.
+ obs: algumas imagens disponibilizadas para visualização.
   
