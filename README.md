@@ -10,4 +10,14 @@ LISTA DE TRABALHOS FEITO PARA CLIENTES:
  
   2. Criação de skins(imagens de conteúdo por meio do photoshop), desde o mês de maio, para gerar tráfego na página do facebook para cliente.
  obs: algumas imagens disponibilizadas para visualização.
+ 
+  3. Designer das Páginas de Captura(alguns exemplos):
+  http://comoiniciardozero.com.br/ebook-ed
+  http://comoiniciardozero.com.br/como-criar-um-negocio-online
+  http://comoiniciardozero.com.br/10-perguntas-fundamentais-para-o-sucesso-do-seu-negocio
+  http://comoiniciardozero.com.br/101-palavras-persuasivas-para-atrair-seu-cliente
+  http://comoiniciardozero.com.br/checklist-avatar-10passos
+  
+  4. Trabalhos como video maker, interagindo o mundo dos vídeos com os clientes.
+  
   
